@@ -2,6 +2,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Slabo&size=18&duration=2300&pause=1000&color=9B37DD&center=true&width=435&lines=Do+you+believe+in+love+at+first+sight%3F;Do+you+believe+in+fate%3F;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4)](https://git.io/typing-svg)
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Slabo&size=18&duration=2300&pause=1000&color=80DD5B&width=435&lines=%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4;%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4%E3%85%A4;I+believe+that+good+things;Only+come+to+those+who+wait.+)](https://git.io/typing-svg)
 
+![ilovedani](https://github.com/panacealove/panacealove/blob/main/IMG_20260907_010450.png) 
 ㅤㅤㅤㅤㅤㅤㅤ![nya](https://komarev.com/ghpvc/?username=panacealove&color=852616&style=flat&label=TNTs)
 <!--
 **castrum-kremnos/castrum-kremnos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
