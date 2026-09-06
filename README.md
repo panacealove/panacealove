@@ -1,6 +1,6 @@
-![nyanyanya](https://github.com/castrum-kremnos/castrum-kremnos/blob/main/IMG_20251016_151752.png)
+![nyanyanya](https://github.com/panacealove/panacealove/blob/main/Tak%20berjudul148_20260906222437.png)
 ![ilovedani](https://github.com/castrum-kremnos/castrum-kremnos/blob/main/IMG_20251016_173438.png) 
-ㅤㅤㅤㅤ![nya](https://komarev.com/ghpvc/?username=panacealove&color=68384C&style=flat&label=Eternal+Reccurance＃)
+ㅤㅤㅤㅤㅤㅤㅤㅤ![nya](https://komarev.com/ghpvc/?username=panacealove&color=68384C&style=flat&label=TNTs)
 <!--
 **castrum-kremnos/castrum-kremnos** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
