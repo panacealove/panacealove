@@ -1,4 +1,4 @@
-![nyanyanya](https://github.com/panacealove/panacealove/blob/main/Tak%20berjudul148_20260906222437.png)
+![nyanyanya](https://github.com/panacealove/panacealove/blob/main/Tak%20berjudul150_20260906230704.png)
 ![ilovedani](https://github.com/castrum-kremnos/castrum-kremnos/blob/main/IMG_20251016_173438.png) 
 ㅤㅤㅤㅤㅤㅤㅤㅤ![nya](https://komarev.com/ghpvc/?username=panacealove&color=68384C&style=flat&label=TNTs)
 <!--
